@@ -1,4 +1,4 @@
-# Macarronada com molho rosê
+# Macarronada com molho rose :spaghetti:
 
 ### Ingredientes 
 
